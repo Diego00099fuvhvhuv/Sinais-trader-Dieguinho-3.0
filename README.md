@@ -1,0 +1,1 @@
+# Sinais-trader-Dieguinho-3.0
